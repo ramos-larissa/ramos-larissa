@@ -1,4 +1,4 @@
-## Hey 👋, Larissa!  
+## Hey 👋, I'm Larissa!  
   
 
 <a href="https://github.com/ramos-larissa" target="_blank">
